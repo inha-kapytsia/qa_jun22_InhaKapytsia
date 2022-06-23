@@ -1,0 +1,1 @@
+# qa_jun22_InhaKapytsia
